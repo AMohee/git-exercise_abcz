@@ -1,4 +1,4 @@
-# Captain Whiskers the Brave Astronaut
+# Sir McGee the Brave Astronaut
 
 - [Chapter 1](chapter1.md)
 - [Chapter 2](chapter2.md)
