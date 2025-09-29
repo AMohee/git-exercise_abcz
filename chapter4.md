@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4: I HOPE HE DIES IN CHAPTER 5 ON GOD
 
 "We did it!" Astro-Mouse cheered, panting.
 
@@ -8,9 +8,7 @@ Gloop wobbled over to them, his eyes filled with gratitude. "Thank you, brave tr
 
 Captain Whiskers smiled. "It was our pleasure, Gloop. But we should probably get going now. We have a lot of space tuna to eat."
 
-They said goodbye to Gloop and the Gloops, promising to visit again soon. As Cosmic Catnip soared back into space, Captain Whiskers looked back at Planet Xylo, a small, glowing orb in the distance.
-
-"Another adventure completed," he purred. "And who knows what other strange creatures and delicious space berries await us?"
+Astro-Mouse, finally relaxed, smiled. "I don't know, Captain. But as long as I have my wrench and you have your laser pointer, I think we can handle anything."
 
 Astro-Mouse, finally relaxed, smiled. "I don't know, Captain. But as long as I have my wrench and you have your laser pointer, I think we can handle anything."
 
