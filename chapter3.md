@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3: GLOOP DIE GLOOP DIE GLOOP DIE
 
 Gloop happily obliged, and soon they were in a grove filled with bushes laden with juicy, glowing berries. Captain Whiskers tasted one and his eyes widened.
 

@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2: FUCK ME I WANT TO DIE
 
 They landed Cosmic Catnip on a soft, squishy surface. The air outside shimmered with a rainbow-like sheen, and strange, bioluminescent plants glowed in the dim light. Captain Whiskers, ever the brave explorer, donned his space helmet and beckoned Astro-Mouse to follow.
 
