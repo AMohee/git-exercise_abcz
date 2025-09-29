@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2: FUCK ME I WANT TO DIE
 
 Gloop happily obliged, and soon they were in a grove filled with bushes laden with juicy, glowing berries. Captain Whiskers tasted one and his eyes widened.
 

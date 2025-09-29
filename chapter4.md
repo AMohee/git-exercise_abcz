@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4: I HOPE HE DIES IN CHAPTER 5 ON GOD
 
 "We did it!" Astro-Mouse cheered, panting.
 
