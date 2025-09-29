@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1: KILLED HALF THE PLANET'S WATER SUPPLY FOR THIS SHIT WILTED ROSE EMOJI
 
 Sir McGee: A brave and curious cat astronaut.
 Astro-Mouse: A small, nervous mouse who is the ship's engineer.

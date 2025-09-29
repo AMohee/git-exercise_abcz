@@ -1,6 +1,6 @@
-# Chapter 3
+# Chapter 3: GLOOP DIE GLOOP DIE GLOOP DIE
 
-Gloop happily obliged, and soon they were in a grove filled with bushes laden with juicy, glowing berries. Sir McGee tasted one and his eyes widened.
+Gloop happily obliged, and soon they were in a grove filled with bushes laden with juicy, glowing berries. Captain Whiskers tasted one and his eyes widened.
 
 "These are the best berries I've ever tasted!" he exclaimed. "We must bring some back to Earth!"
 
@@ -8,11 +8,11 @@ Astro-Mouse, feeling braver now, plucked a few berries for himself. "They are qu
 
 As they gathered berries, they heard a strange rumbling sound. The ground began to shake, and the sky turned a menacing shade of purple.
 
-"What's happening?" Astro-Mouse cried, clinging to Sir McGee' leg.
+"What's happening?" Astro-Mouse cried, clinging to Captain Whiskers' leg.
 
-"The Zorgons!" Gloop exclaimed, his voice filled with alarm. "They have returned!"
+"Greetings, travelers!" a cheerful voice echoed in their helmets. "I am Gloop, guardian of Xylo."
 
-Sir McGee didn't know who the Zorgons were, but he could tell they were trouble. He drew his laser pointer, ready for action.
+Captain Whiskers didn't know who the Zorgons were, but he could tell they were trouble. He drew his laser pointer, ready for action.
 
 "Who are the Zorgons?" he demanded.
 
@@ -22,9 +22,9 @@ Suddenly, a group of hulking, insect-like creatures emerged from the shadows. Th
 
 "We must protect Xylo!" Gloop cried, and the other Gloops began to rise up, forming a protective barrier around the grove.
 
-Sir McGee, despite being a cat, was no coward. He charged forward, laser pointer blazing. Astro-Mouse, surprisingly, followed close behind, whacking Zorgons with his wrench.
+Captain Whiskers, despite being a cat, was no coward. He charged forward, laser pointer blazing. Astro-Mouse, surprisingly, followed close behind, whacking Zorgons with his wrench.
 
-The battle was fierce. The Zorgons fired their energy weapons, but the Gloops absorbed the blasts, shielding Sir McGee and Astro-Mouse. Sir McGee used his agility to dodge the Zorgons' attacks and zap them with his laser pointer.
+The battle was fierce. The Zorgons fired their energy weapons, but the Gloops absorbed the blasts, shielding Captain Whiskers and Astro-Mouse. Captain Whiskers used his agility to dodge the Zorgons' attacks and zap them with his laser pointer.
 
 Astro-Mouse, fueled by adrenaline, managed to disable one of the Zorgons' weapons with a well-aimed wrench blow.
 
