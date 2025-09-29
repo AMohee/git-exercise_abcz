@@ -11,18 +11,15 @@ Suddenly, one of the puddles rose up, forming a large, wobbly shape. Two large, 
 "Greetings, travelers!" a cheerful voice echoed in their helmets. "I am Gloop, guardian of Xylo."
 
 Captain Whiskers stared, his jaw dropping beneath his helmet. "A… a talking amoeba?"
+"Greetings, travelers!" a cheerful voice echoed in their helmets. "I am Gloop, guardian of Xylo."
 
 Gloop chuckled, the sound like bubbles popping. "Indeed! We are the Gloops, a peaceful race of… well, we are goo. But friendly goo!"
 
 Astro-Mouse peeked out from behind Captain Whiskers. "Friendly goo? Are you… are you going to eat us?"
 
-<<<<<<< HEAD
-Suddenly, a group of hulking, insect-like creatures emerged from the shadows. They were armed with strange weapons that crackled with dark energy.
-=======
 "Eat you? Goodness, no!" Gloop exclaimed. "We are herbivores. We eat space algae and stardust. Would you like some?"
 
 Captain Whiskers, always up for a new culinary experience, nodded. Gloop extended a pseudopod and offered them a shimmering ball of light. It tasted like a mixture of cotton candy and electricity.
->>>>>>> 1f506bb1ab5e667a53599966d9123023c9f5baca
 
 "Delicious!" Captain Whiskers purred. "So, Gloop, tell us about Xylo."
 

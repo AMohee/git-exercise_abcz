@@ -1,8 +1,4 @@
-<<<<<<< HEAD
-# Chapter 2!
-=======
 # Chapter 2: FUCK ME I WANT TO DIE
->>>>>>> 1f506bb1ab5e667a53599966d9123023c9f5baca
 
 Gloop happily obliged, and soon they were in a grove filled with bushes laden with juicy, glowing berries. Captain Whiskers tasted one and his eyes widened.
 
@@ -11,14 +7,9 @@ Gloop happily obliged, and soon they were in a grove filled with bushes laden wi
 Astro-Mouse, feeling braver now, plucked a few berries for himself. "They are quite good," he admitted.
 
 As they gathered berries, they heard a strange rumbling sound. The ground began to shake, and the sky turned a menacing shade of purple.
-
-<<<<<<< HEAD
-Captain Whiskers stared, his jaw dropping beneath his helmet. "A… a talking amoeba?"
-=======
-"What's happening?" Astro-Mouse cried, clinging to Captain Whiskers' leg.
+Suddenly, one of the puddles rose up, forming a large, wobbly shape. Two large, friendly eyes blinked at them.
 
 "The Zorgons!" Gloop exclaimed, his voice filled with alarm. "They have returned!"
->>>>>>> 1f506bb1ab5e667a53599966d9123023c9f5baca
 
 Captain Whiskers didn't know who the Zorgons were, but he could tell they were trouble. He drew his laser pointer, ready for action.
 
